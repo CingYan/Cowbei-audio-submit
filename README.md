@@ -9,4 +9,4 @@
 你就上去多靠北兩篇吧！  
 如果想投稿的話  
 
-[這裡是投稿頁面](cowbeiaudio.uk)
+[這裡是投稿頁面](https://cowbeiaudio.uk)
